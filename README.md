@@ -1,0 +1,1 @@
+Explicações claras e objetivas, excelente.
